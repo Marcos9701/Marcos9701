@@ -13,7 +13,8 @@ Amo ver como Jogos, códigos, tecnologia, animes, podem mudar tudo através de u
 🎮 Games | 💻 Coding | 📚 Learning | 🌌 Creativity
 
 ---
-![pokemon omg STICKER - Find   Share on GIPHY](https://github.com/user-attachments/assets/511b72c0-0c86-4827-aebc-63b3cc26da2a)
+Script que criei:
+![WhatsApp Image 2025-11-02 at 18 13 38 (3)](https://github.com/user-attachments/assets/204c7a7d-7c9b-431b-87f8-418cf2311338)
 
 
 
